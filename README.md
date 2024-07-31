@@ -2,7 +2,7 @@
 - 👀 I’m interested in music and technology
 - 🌱 I’m currently learning about computer engineering
 - 💞️ I’m looking to collaborate on anyone
-- 📫 You can reach me on my gmail which is marilounacional0717@gmail.com
+- 📫 You can reach me on my instagram which is @louchacco
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a singer heh...
 
